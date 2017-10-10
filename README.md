@@ -4,3 +4,5 @@ a place where you store ideas, resources, or even share and discuss things with 
 I love basketball, my idle is Kobe.
 
 My wife is lijindan.
+
+i work in hik.
